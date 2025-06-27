@@ -59,9 +59,8 @@ In this task, I explored how pre-trained models like **DALL·E Mini** can genera
 ---
 
 ## 📬 Connect With Me
-**Tanmay Margaj**  
-🔗 [LinkedIn](www.linkedin.com/in/tanmay-margaj-5598542bb)   
-📧 tanmaymargaj35@gmail.com 
+Saish Kocharekar
+🔗 www.linkedin.com/in/saish-kocharekar0916 📧saishkocharekar@gmail.com
 
 ---
 
